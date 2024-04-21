@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @cholebhatore
+- 👀 I’m interested in sleeping
+- 🌱 I’m currently learning how to sleep effectively
+- 💞️ I’m looking to collaborate on sleeping 
+- 📫 How to reach me: do not reach me I'm probably sleeping (hicup1d on insta, just in case)
+- 😄 Pronouns: chole/bhatore
+- ⚡ Fun fact: Chole Bhature is believed to have originated in 1947, when Peshori Lal Lamba migrated from Lahore to India with a recipe for chole. Lamba opened the Kwality restaurant in Connaught Place and served his chole, sandwiches, and other snacks.
